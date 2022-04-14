@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ro-Script
+- 👀 I am reuploader and own creating roblox scripts.
+- 🌱 I’m currently learning nothing lololol
+- 💞️ I’m looking to collaborate on some script pages but idk maybe I do it
+- 📫 How to reach me via email: roscripts.bussines@gmail.com
